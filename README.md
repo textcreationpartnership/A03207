@@ -35,42 +35,154 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
+Novemb. 7. 1634.PErlegi hunc Librum cui titulus, A Diuine Poëm, intituled, The Hierarchie of Angels.TO THE MOST EXCELLENT AND INCOMPARABLE LADY, AS FAMOVS FOR HER ILLVSTRIOVS VERTVES, AS FORTVNAT IN H
+1. To the Reader.
+The Argument of the first Booke.VRIEL.A Iove Principium the Creator,Of all that liue sole Animator.A
+    _ The Argument of the first Booke.
+
+    _ The Argument of the second Booke.
+
+    _ The Argument of the third Booke.
+
+    _ The Argument of the fourth Booke.
+
+    _ The Argument of the fifth Booke.
+
+    _ The Argument of the sixt Booke.
+
+    _ The Argument of the seuenth Booke.
+
+    _ The Argument of the eighth Booke.
+
+    _ The Argument of the ninth Booke.
 
 #####Body#####
+The Seraphim:Ex sumptib: Tho: Mainwaringe Armig:THE ARGVMENT OF the first Booke.A Ioue Principium, the Creator,Of all that liue, sole Animator.Athei
+    _ THE ARGVMENT OF the first Booke.
 
-1. An Emblem.
+    _ 2 Argument.
+INspire my Purpose, fauour mine Intent,(O thou All-knowing and Omnipotent)And giue me leaue, that frQVod Deus est, scimus: sed quid, si scire velimus;Vltra nos imus: sed quod sit sumus & imus;Vltimus 
+    _ ¶ The English:
 
-1. Sentences of the Fathers concerning the Trinitie in Vnitie, and Vnitie in Trinitie.
+    _ THEOLOGICALL, PHILOsophicall, Morall, Poeticall, Historicall, Emblematicall, Obseruations, to the further illustration of the former Tractate.
 
-1. Philosophicall Sentences concerning God.
+      * An Emblem.
 
-1. Apothegmes concerning God.
+    _ A Meditation vpon the former Tractate.
+The CherubimEx sumptib Guilielm: Toomes.THE ARGVMENT of the second Tractate.A God being found, deny'd by none,It followes there can be but o
+    _ THE ARGVMENT of the second Tractate.
 
-1. Illustrations by the way of Comparison, concerning God.
+    _ ¶ The second Argument.
+A Deitie confest,Whence the multiplicity of gods sprung. (which All adore)It followeth to be onely O
+    _ Theologicall, Philosphicall, Poeticall, Historicall, Apothegmaticall, Hierogriphicall and Emblematicall Obseruations, touching the further illustration of the former Tractate.
 
-1. The Emblem.
+      * Sentences of the Fathers concerning the Trinitie in Vnitie, and Vnitie in Trinitie.
 
-1. Of the Sunne.
+      * Philosophicall Sentences concerning God.
 
-1. Of the Moone.
+      * Apothegmes concerning God.
 
-1. An Emblem.
+      * Illustrations by the way of Comparison, concerning God.
 
-1. The Emblem.
+      * The Emblem.
 
-1. The Emblem.
+    _ A Meditation vpon the former Tractate.
+The Throne.Ex muner: Iokan: o• Math: Christmas Artist:THE ARGVMENT of the third Tractate.OF th'Vniuerse, the Regions three,And how their part• disposed be
+    _ THE ARGVMENT of the third Tractate.
 
-1. The Emblem.
+    _ ¶ The second Argument.
 
-1. The Emblem.
+    _ The Thrones.
 
-1. The Emblem.
+    _ Theologicall, Philosphicall, Poeticall, Historicall, Apothegmaticall, Hierogriphicall and Emblematicall Obseruations, touching the further illustration of the former Tractate.
 
-1. Additions to the Premisses.
+      * Of the Sunne.
 
-1. The Emblem.
+      * Of the Moone.
+
+      * An Emblem.
+
+    _ A Meditation vpon the former Tractate.
+The DominationsE••〈◊〉: Ioannis 〈◊〉 Gener:THE ARGVMENT of the fourth Tractate.WHat Ternions and Classes beIn the Coelestiall Hierarchee.In wha
+    _ THE ARGVMENT of the fourth Tractate.
+
+    _ The second Argument.
+
+    _ The Dominations.
+
+    _ Theologicall, Philosphicall, Poeticall, Historicall, Apothegmaticall, Hierogriphicall and Emblematicall Obseruations• touching the further illustration of the former Tractat.
+
+      * The Emblem.
+
+    _ A Meditation vpon the former Tractate.
+:THE: VERTVES:Ex Sumptib: Gulielmi: Beescom GenerosTHE ARGVMENT of the fifth Tractate.THe Consonance and SympathyBetwixt the Angels Hierarchy.The Plane
+    _ THE ARGVMENT of the fifth Tractate.
+
+    _ The second Argument.
+
+    _ The Vertues.
+
+    _ Theologicall, Philosphicall, Poeticall, Historicall, Apothegmaticall, Hierogliphicall and Emblematicall Obseruations, touching the further illustration of the former Tractat.
+
+      * The Emblem.
+
+    _ A Meditation vpon the former Tractate.
+Ey sumptib: CHRISTOPH: BEESTON. Generos:THE ARGVMENT of the sixth Tractate.THe Heart of Man bee'ng so adverseTo Goodnesse, and so apt to pie
+    _ THE ARGVMENT of the sixth Tractate.
+
+    _ The second Argument.
+
+    _ The Powers.
+
+    _ Theologicall, Philosphicall, Poeticall, Historical, Apothegmaticall, Hierogliphicall and Emblematicall Obseruations, touching the further illustration of the former Tractat.
+
+      * The Emblem.
+
+    _ A Meditation vpon the former Tractate.
+THE PRINCIPATEx muner g: glouer sculpt:THE ARGVMENT of the seuenth Tractat.OF Gods great Works a serious view,(For which all praise to him 
+    _ THE ARGVMENT of the seuenth Tractat.
+
+    _ The second Argument.
+
+    _ The Principats.
+
+    _ Theologicall, Philosphicall, Poeticall, Historicall, Apothegmaticall, Hierogliphicall and Emblematicall Obseruations, touching the further illustration of the former Tractat.
+
+      * The Emblem.
+
+    _ A Meditation vpon the former Tractate.
+S. MICHAEL ARCHANGELEx Sumptib Harbottel Grimstone Armig: Ia droeshe•t sculptTHE ARGVMENT of the eighth Tractat.OF Sathans Wiles and Feats praestigious,Appearing wondrous and pr
+    _ THE ARGVMENT of the eighth Tractat.
+
+    _ The second Argument.
+
+    _ The Arch-Angell.
+
+    _ Theologicall, Philosphicall, Poeticall, Historicall, Apothegmaticall, Hierogliphicall and Emblematicall Obseruations, touching the further illustration of the former Tractat.
+
+      * The Emblem.
+
+    _ A Meditation vpon the former Tractate.
+THE ANGELLThom: Hammon Armig: Rich: Gethinge M of ye pen.THE ARGVMENT of the ninth Tractat.TO Spirits call'd Lucifugi(From shunning Light) I next applyMy nee
+    _ THE ARGVMENT of the ninth Tractat.
+
+    _ ¶ The second Argument.
+
+    _ The Angell.
+
+    _ Theologicall, Philosophicall, Poeticall, Historicall, Apothegmaticall, Hierog•p•icall and Emblematicall Obseruations, touching the further illustration of the former Tractat.
+
+      * Additions to the Premisses.
+
+      * The Emblem.
+
+    _ A Meditation vpon the former Tractate.
 
 #####Back#####
+
+1. A generall Table.
+THE CONTENTS OF THE FIRST TRACTAT.TO proue there is a God, from the Conscience, the Stars, Earth, BeTHE CONTENTS OF THE SECOND TRACTAT.VVHence the multiplicity of gods came,59.The Vnitie of the God-heTHE CONTENTS OF THE THIRD TRACTAT.THe three diuisions of the World, Elements, Terrest. Coelest. SupeTHE CONTENTS OF THE FOVRTH TRACTAT.THe three Ternions of Angels, with their seuerall offices,194.HowTHE CONTENTS OF THE FIFTH TRACTAT.GOds Power, Wisedome, and Goodnesse in the Creation,271.The concorTHE CONTENTS OF THE SIXTH TRACTAT.A Discourse of the Heart of man,331.The inconstancie of Mans HeartTHE CONTENTS OF THE VII. TRACTAT.VVIsedome contemplateth the wonderfull works of God,407.The Sun,408THE CONTENTS OF THE EIGHTH TRACTAT.OF Daemons in generall,495Homer, Tresmegistus, and others, of DaeTHE CONTENTS OF THE NINTH TRACTAT.THe power and strength of Wine,564.Of the King,ibid.Of Women,565.O
+1. Errata.
 
 **Types of content**
 
